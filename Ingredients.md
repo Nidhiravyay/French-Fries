@@ -1,0 +1,1 @@
+The ingredients you need are two big potatoes, corn flour, salt, oil and chilli powder(optional).
